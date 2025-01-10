@@ -1,1 +1,1 @@
-# TripleTen_Previ-o_de_Lucro
+# TripleTen_Previsão_de_Lucro
